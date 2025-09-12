@@ -1,1 +1,1 @@
-# susatainable-smartcity
+# Sustainable-smartcity
